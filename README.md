@@ -1,6 +1,6 @@
 - 👋 Hello, I’m @snerdey
 - 👀 I've been around since dirt.
-- 🌱 I’m currently multitasking an ath.
+- 🌱 I’m currently multitasking ATH.
 - 💞️ I’m looking to retire on the beach in 2025
 - 📫 Snerdey@gmail.com
 
